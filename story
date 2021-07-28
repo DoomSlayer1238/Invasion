@@ -1,1 +1,1 @@
-Once a upon a time there was Jack and Jill and they both were trying to survivea zombie invasion.
+Once a upon a time there was Jack and Jill and they both were trying to survive a zombie invasion.The zombie broke into their homes and they had to defend themselves but they were unsuccessful so they fleed their homes and they were on the road.
